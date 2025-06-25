@@ -11,7 +11,7 @@
 
 点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
 
-点击访问：<a href="https://hj-216.pages.dev/">精彩影视</a>
+点击访问：<a href="https://hj-216.pages.dev/">51视频精彩影视</a>
 
 点击访问：<a href="https://cg6-01.pages.dev/">吃瓜社区影视官方网页版免费手机看剧</a>
 
